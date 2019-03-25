@@ -1,0 +1,1 @@
+# SlobodaStudio_curency
